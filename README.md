@@ -1,1 +1,1 @@
-# rsschool-cv
+https://nocturnebh.github.io/rsschool-cv/cv
